@@ -8,3 +8,5 @@
 ### Healing
 
 ![22](https://user-images.githubusercontent.com/34755287/113077391-066cf980-920c-11eb-9f98-98da4c6dee99.gif)
+
+> "All The Gods, All the Heavens, All the Hells are within you" - Joseph Campbell's Power of the myth and 13 Hours[Movie] -
