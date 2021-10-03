@@ -4,5 +4,3 @@
 
 
 ### Healing
-
-![22](https://user-images.githubusercontent.com/34755287/113077391-066cf980-920c-11eb-9f98-98da4c6dee99.gif)
